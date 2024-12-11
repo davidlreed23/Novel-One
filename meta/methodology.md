@@ -1,0 +1,1 @@
+[Previous content about writing methodology]

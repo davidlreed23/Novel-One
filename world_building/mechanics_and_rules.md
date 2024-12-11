@@ -1,0 +1,1 @@
+[Previous content of mechanics_and_rules.md]

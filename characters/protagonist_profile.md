@@ -1,0 +1,1 @@
+[Previous content of protagonist_background.md]

@@ -1,0 +1,1 @@
+[Previous content of critical_time_periods.md]

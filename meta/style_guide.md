@@ -1,0 +1,1 @@
+[Previous content of style_guide.md]
